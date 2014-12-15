@@ -1,1 +1,1 @@
-I’m too confused.
+I want to love you.
